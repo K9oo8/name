@@ -11,7 +11,8 @@
 \> sign up  
 \> "Enter Username"  
 \> never made a username before, im 8  
-\>look over at screen  
+\>look over at tv screen  
+
 \> K9-002.jpg  
 
 \> steal that  
